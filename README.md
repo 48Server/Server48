@@ -5,7 +5,7 @@ Selamat datang di **SERVER48**, komunitas penggemar JKT48 yang hadir untuk membe
 ## 🎥 Channel YouTube - SERVER48
 Kami juga memiliki channel YouTube yang berfokus pada live stream dan konten menarik lainnya terkait JKT48. Jangan lupa untuk Subscribe agar tidak ketinggalan live terbaru!
 
-🔗 [YouTube: SERVER48](https://www.youtube.com/VMUB)
+🔗 [YouTube: VMUB](https://www.youtube.com/VMUB)
 
 ## 🌐 Komunitas Discord
 SERVER48 memiliki server Discord sebagai pusat komunitas untuk berbagi berita terbaru, diskusi seru, dan berinteraksi dengan sesama fans JKT48.
